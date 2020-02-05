@@ -9,3 +9,8 @@ BTW, I will publish the e-chapters implements about this book in the near future
 
 Welcome stars....
 
+
+
+PS: The notes might be ugly but still updating slowly...
+
+For any issues, please email me with 181110315@stu.hit.edu.cn .
